@@ -1,2 +1,5 @@
-# punishing-gray-raven-hack-mod-cheats-codes
-Punishing Gray Raven Hack 99k blue tickets Cheats gift codes with mod for English version
+# Punishing Gray Raven Hack 99k blue tickets Cheats gift codes with mod for English version
+
+Punishing Gray Raven Hack 99k blue tickets Cheats gift codes with mod for English version - Adjusting the gear with Punishing Gray Raven Cheats and gift codes can be done in some other ways, including through a material gear or an exp sphere. As mentioned earlier, you can only raise one gear to level 30, and as the gear increases, its statistics will also increase. On the other hand, when you log in to Matra temple every day, you can get the experience ball. So, how do you level the equipment? It's very simple if you have Punishing Gray Raven hack or mod apk. First, go to the home screen and open Smith or your bag. Next, select the equipment you want to upgrade. Select another equipment as the upgrade material, and view the statistics of the equipment pole level on the right side of the character avatar. When you're ready, click the "level up" button, but make sure you do have enough blue tickets! At the bottom left of the screen, you will see the amount of gold you need in order to successfully upgrade.
+
+<a href="https://yintamod.xyz/punishing-gray-raven/">visit here</a>
